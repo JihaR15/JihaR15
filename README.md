@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jiharamdhan97@gmail.com**
 
-- ⚡ Fun fact **Berotak Senku**
+- ⚡ Fun fact **pas kecil sempet takut sama susu bear brand**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
